@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tewanderer
-- 👀 I’m interested in programming, manga, online games, and you ;O
+- 👀 I’m interested in programming, manga, online games, and you
 - 🌱 I’m currently learning how to program
 - 💞️ I’m looking to collaborate on learning how to program
 - 📫 How to reach me ... don't
